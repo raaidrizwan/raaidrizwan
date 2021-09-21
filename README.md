@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @raaidrizwan
+- 👀 I’m interested in anything involving aviation or similar technologies, software, and mathematics.
+- 🌱 I’m currently attending the University of Texas at Dallas, where I am majoring in Computer Science.
+- 💞️ I’m currently a new member of the Comet Solar Racing Team and have previously worked as a Data Processor at Appen Butler Hill, Inc, during the Summer of 2021.
+- 📫 I'll add how to reach me later!
